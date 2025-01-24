@@ -1,0 +1,1 @@
+PediCare Hospital is a trusted provider of pediatric care, offering compassionate and comprehensive services for children. From newborns to adolescents, we ensure the best possible health outcomes for young patients.
